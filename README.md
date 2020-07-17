@@ -1,1 +1,0 @@
-# Seulgi.Hwang
